@@ -1,7 +1,8 @@
 ### r8830668
-- aluno de progamação 
+- aluno senai
+- TDS(técnico em desenvolvimento de sistema)
 
-![]https://tenor.com/pt-BR/view/chris-evans-captain-america-steve-rogers-marvel-avengers-gif-16546418
+![]https://tenor.com/pt-BR/view/thumbs-up-double-thumbs-up-like-agreed-yup-gif-11663223
 
 
 
